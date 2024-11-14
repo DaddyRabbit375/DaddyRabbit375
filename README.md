@@ -1,1 +1,1 @@
-Hi, I'm @DaddyRabbit375. I'm interested in cybersecurity and data science. I'm currently learning about artificial intelligence and machine learning. I'm looking to collaborate on projects related to cybersecurity and data science. You can reach me at my website or via social media. My pronouns are he/him. Fun fact: I have a pet rabbit named Bugs Bunny.
+Hi, I'm Nathan a skilled cybersecurity engineer and a data analysis. Currently am a student at Kibabii University in Kenya undertaking a degree in Computer Science.
